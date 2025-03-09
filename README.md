@@ -1,5 +1,9 @@
 # Certifications
 
+## Cellula Computer vision internship
+![image](https://github.com/user-attachments/assets/83501bc2-d5ee-4a9d-81b9-7727df7c0ab2)
+![image](https://github.com/user-attachments/assets/3f69ab54-3607-4b25-a126-840c7fdffc1f)
+
 ## EVOASTRA VENTURES Internship
 ![image](https://github.com/Sayed73/Certifications/assets/105808002/455b335e-9ed2-42bf-a6bd-9cce6231c658)
 
